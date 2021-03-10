@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Welcome to Nicole's advice corner
 
-I'm glad you are here. I plan to talk about ...
+Good to see you 👋  
+Here I will discuss how to be productive in the mornings ☀️
